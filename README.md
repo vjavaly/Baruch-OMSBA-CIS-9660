@@ -1,1 +1,1 @@
-# Baruch-OMSBA-CIS-9660
+# Baruch Online MSBA CIS 9660
